@@ -1,3 +1,7 @@
+### NOTE $\rightarrow$ not maintained!!!
+_[click here](https://www.instagram.com/nullpulsegithub/)_ if you want to buy something.
+
+---
 
 <div align="center">
   <pre style="display: inline-block; border: 1px solid; padding: 10px;">
