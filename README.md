@@ -1,5 +1,5 @@
-### NOTE $\rightarrow$ not maintained!!!
-_[click here](https://www.instagram.com/nullpulsegithub/)_ if you want to buy something.
+### NOTE -> not maintained!!!
+_[click here](https://www.instagram.com/nullpulsegithub/)_ if you want to ask something.
 
 ---
 
